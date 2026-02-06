@@ -1,1 +1,1 @@
-# The-Great-Reset
+# The Great Reset
